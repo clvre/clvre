@@ -2,4 +2,6 @@
 
 dr habit died.. For your SINS
 
-i won't ever make a strawpage but i will put that i'm an adult and that i like scp + marine biology come ask me about both i will gladly go on. i also like ultrakill, smile for me, mouthwashing, hollow knight, house md and desperate housewives
+i won't ever make a strawpage but i will put that i'm an adult and that i like scp + marine biology come ask me about both i will gladly go on. i also like ultrakill, smile for me, mouthwashing, hollow knight, house md and desperate housewives.
+
+i'm also going into nursing. my github bio is accurate. be ready.
